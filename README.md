@@ -1,2 +1,0 @@
-# trynna
-Trying 
